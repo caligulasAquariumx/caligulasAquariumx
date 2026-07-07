@@ -5,3 +5,5 @@
 lele hi guys
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u8pwzoxqlqovhgf7546870vrp&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=u8pwzoxqlqovhgf7546870vrp&redirect=true)
+
+I'm too shy and embarrassed to talk to people who I think is cooler than me idk...
