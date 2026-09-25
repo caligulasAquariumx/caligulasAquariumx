@@ -1,6 +1,6 @@
 # Hi there, would you like to sign my petition? 📋✂️🚸
 
-I need more Postal fans friends 😭😭😭😭😭😭😭😭
+I need more Postal fan friends 😭😭😭😭😭😭😭😭 my shyness is holding me back I swear
 
 ![My insufferable town](https://github.com/caligulasAquariumx/caligulasAquariumx/blob/main/6752bfc9bf1e7074e31e9112ae4c0e70.jpg)
 
